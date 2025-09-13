@@ -1,0 +1,2 @@
+# pagar-rango
+INSTRUCCIONES PARA PAGAR
